@@ -14,7 +14,7 @@ Instructions: https://krampus-organization.gitbook.io/loader.live-ro-exec-docume
 
 
 Or you can join the Exe leaks discord server and create a ticket:
-https://discord.gg/project-rain
+https://discord.gg/Pqdcda9KAJ
 
 
 This key is for Everybody after a Year it's Paided
